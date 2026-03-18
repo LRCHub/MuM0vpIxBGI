@@ -1,0 +1,70 @@
+# NALALA – &ME
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+High!
+You & ME!
+Follow me!
+Butterfly
+(You Take Me up to the sky)
+But I fly
+(Take Me to your heart)
+この羽で奇跡を起こそう
+輝く時近くまで来てるかな
+（That's what I want, want）
+何も見えない トンネルの先
+眩しく照らす光
+（You & ME!）
+行くよ Higher higher
+（Take Me!）
+心 Make a fire
+ずっとずっと 遠かった君
+Ah やっと出会える
+We're just like a
+Butterfly 高く
+倒れても まだ飛べるよ
+But I fly 見てて
+大きな風 巻き起こして
+Take Me You & ME!
+（You Take Me up to the sky）
+遠くに Take Me
+（Take Me to your heart）
+Take Me You & ME!
+（You Take Me up to the sky）
+高く Take Me
+（Take Me to your heart）
+shh!
+固く閉ざした 扉
+勇気を出して 開けば
+固く閉ざした 心
+ほらね大きく 開いた
+（High! You & ME!）
+行くよ Higher higher
+（Take Me!）
+心 Make a fire
+ずっとずっと 遠かった君
+Ah やっと出会える
+We're just like a
+Butterfly もう一回
+倒れても まだ飛べるよ
+But I fly 見てて
+大きな風 巻き起こして
+誰のでもない
+しなやかな自分の羽で
+今 力いっぱい飛んで行け
+Can't get enough Fly
+High!
+Butterfly 高く
+倒れても まだ飛べるよ
+But I fly 見てて
+大きな風 巻き起こして
+Take Me You & ME!
+（You Take Me up to the sky）
+遠くに Take Me
+（Take Me to your heart）
+Take Me You & ME!
+（You Take Me up to the sky）
+高く Take Me
+（Take Me to your heart）
+```
